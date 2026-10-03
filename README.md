@@ -1,0 +1,1 @@
+# Tshiakuisha_12_Resistance-_allele
